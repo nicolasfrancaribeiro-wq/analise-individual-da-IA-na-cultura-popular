@@ -1,0 +1,1 @@
+# analise-individual-da-IA-na-cultura-popular
